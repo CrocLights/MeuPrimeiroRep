@@ -1,5 +1,5 @@
 # Meu Perfil
 
-## Igor Espósito
+## Olá, meu nome é Igor Espósito Serra
 
-### Estudo Desenvolvimento de Sistemas
+### Estou vivo em um planeta, sou um ser humano, não sou um alien, gosto de joga
